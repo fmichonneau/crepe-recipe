@@ -6,4 +6,4 @@
 * 2 cups of milk
 * 4 whole eggs
 * 1 tablespoon of butter
-* 1TBS sugar
+* 1 tablespoon sugar
