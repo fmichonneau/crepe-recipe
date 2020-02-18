@@ -3,4 +3,5 @@
 ## Ingredients (for ~ 20 crêpes)
 
 * 300g of flour
+* 1 tablespoon of butter
 * 1TBS sugar
